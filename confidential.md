@@ -1,1 +1,0 @@
-I'm actually quite a good cook, but I don't really like doing it. :)
