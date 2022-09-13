@@ -1,2 +1,2 @@
 # MyFirst
-The first one. Simple s that.
+The first one. Simple as that.
